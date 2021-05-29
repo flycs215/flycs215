@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @flycs215
+- Why not change the world!
+- I'm a logistic man who want to change the world by logistics jaja JK. 
+- I love good morning after deep sleep, and coffee, and this time concentration on something.
+- Hope in 5 years want to retire but it's depend on my God. jaja. If I have to work to make money, want programming(Logical Thinking) and investment(Logical analysis & Luck!!)
